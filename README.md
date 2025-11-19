@@ -1,6 +1,6 @@
 ## Olá ˆˆ
 
-- 🌱 Estou aprendendo HTML e CSS
-- 📫 Contato: contato@snowfloke.com
+- 🌱 Sou novata em tudo que faço por aqui, não esperem muito de minhas contribuições enquanto essa linha estiver aqui ;-;
+- 📫 Contato: yasmin@snowfloke.com
 - 🏳️‍⚧️ DemiGirl (Elu/Ela)
-- 🔞 MENOR DE IDADE (14y)
+- 🔞 MENOR DE IDADE (16y)
